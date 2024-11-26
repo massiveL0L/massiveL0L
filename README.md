@@ -1,1 +1,1 @@
-hai :D me have intrest in html & mor (:
+#ff0000w#ff1000e#ff2000l#ff3000c#ff4000o#ff4f00m#ff5f00e#ff6f00 #ff7f00t#ff9100o#ffa400 #ffb600m#ffc800y#ffda00 #ffed00g#ffff00i#dfff00t#bfff00h#9fff00u#80ff00b#60ff00 #40ff00p#20ff00a#00ff00g#00ff24e#00ff49!#00ff6d #00ff92i#00ffb6t#00ffdbs#00ffff #00dfffn#00bfffo#009ffft#0080ffh#0060ffi#0040ffn#0020ffg#0000ff #1400ffs#2800ffp#3c00ffe#4f00ffc#6300ffi#7700ffa#8b00ffl
